@@ -35,6 +35,6 @@ The Lost Album Series consists of the following:
 
 
 
-credits to:Butterboy to upload all of this 
+Credits to: Butterboy to Upload all of this 
 
 source:https://butterboycompilations.blogspot.com/2023/12/beatles-lost-album-volume-01-08-2017.html?sc=1705968609469
